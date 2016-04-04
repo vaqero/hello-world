@@ -3,4 +3,4 @@
 (#FFFF00) yellow! lol
 
 I like aliens, vegans and spaguetti. 
-I wish I can meet a person from out my space so we can travel out space.
+I wish I can meet a person from out my space.
